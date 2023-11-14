@@ -3,6 +3,6 @@
 - i'm a dancer at my school💃
 - 🤍🤍🤍🤍🤍🤍🤍🤍🤍🤍
 - follow me on instagram
- 🤍🤍🤍@t_knowxx🤍🤍🤍
+-  🤍🤍🤍@t_knowxx🤍🤍🤍
   
   
