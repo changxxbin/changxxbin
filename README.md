@@ -1,8 +1,8 @@
--  Hi, I’m @changxxbin👾
+-  𝒉𝑖,𝑖'𝑎𝑚 @𝑐𝒉𝑎𝑛𝑔𝑏𝑖𝑛𝑥𝑥👾
 🤍🤍🤍🤍🤍🤍🤍🤍🤍🤍🤍
-- i'm a dancer at my school💃
+- 𝑖'𝑚 𝑎 𝑑𝑎𝑛𝑐𝑒𝑟 𝑎𝑡 𝑚𝑦 𝑠𝑐𝒉𝑜𝑜𝑙💃
 - 🤍🤍🤍🤍🤍🤍🤍🤍🤍🤍
-- follow me on instagram
+- 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑒 𝑜𝑛 𝑖𝑛𝑠𝑡𝑎𝑔𝑟𝑎𝑚
 -  🤍🤍🤍@t_knowxx🤍🤍🤍
   
   
